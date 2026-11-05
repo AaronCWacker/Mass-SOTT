@@ -34,3 +34,4 @@ Visitation will be held from 10:30 to 11:30 A.M. on Saturday February 15, 2025,
 at Saint Jude the Apostle Church, 734 Glenview Avenue, Wauwatosa, Wisconsin 53213, 
 with a Mass of Catholic Burial held immediately following beginning at 11:30 A.M. Interment at Calvary Cemetery.
 
+<img width="1000" height="667" alt="image" src="https://github.com/user-attachments/assets/0ce13547-7719-4f6b-9285-702ef6b31716" />
