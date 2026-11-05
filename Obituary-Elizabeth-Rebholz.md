@@ -228,4 +228,8 @@ obituary. Some relationships are confirmed by
 Paul E. Rebholz's 2024 obituary; other details
 come from family recollections. Unknown facts
 have deliberately been left unfilled.*
+
+<img width="480" height="640" alt="image" src="https://github.com/user-attachments/assets/eddd909d-dc9e-4556-9828-56e19ed1488f" />
+
+
   
